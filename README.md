@@ -1,2 +1,0 @@
-# sonofgodministries.com
-Ministry website
